@@ -1,0 +1,3 @@
+There’s subtle flavourings used for the rice, and a load more used for the curry sauce.
+
+There’s a lengthy list but there’s nothing exotic here, you can find all these spices at everyday supermarkets here in Australia. Some recipes call for Asafoetida which is an Indian spice that requires a trip to an Indian grocer. We tried it with and without, and I swear we could not taste a difference. So we don’t use it. 
